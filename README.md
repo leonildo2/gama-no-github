@@ -1,0 +1,1 @@
+Aqui nesse repositório estarei colocando alguns dos meus aprendizados da bolsa de estudos aplicados pela Gama Academy.
